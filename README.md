@@ -1,1 +1,1 @@
-A104098.svg?d=4vpuo6xz
+https://githubcard.com/A104098.svg?d=4vpuo6xz
